@@ -30,7 +30,7 @@ EZU{7;2&D:64
 SEM MINÚSCULAS E NÚMEROS
 E}LV`C?X_G:{
 AJH[@HD*V~=<
-\A~AC{_V~MG 
+\A~AC{_V~MG
 W<-T}W:QAF'{
 ~YJ}|FILN>~)
 
